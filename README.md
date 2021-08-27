@@ -1,2 +1,1 @@
-# Bernar.Arg
-argentinian design brand 
+BernarArgCopia1
