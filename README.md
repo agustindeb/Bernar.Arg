@@ -1,2 +1,2 @@
-# Bernar.Arg
+bernár 
 argentinian design brand 
