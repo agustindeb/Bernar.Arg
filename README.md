@@ -1,2 +1,2 @@
-bernár 
+BERNAR ARG 
 argentinian design brand 
